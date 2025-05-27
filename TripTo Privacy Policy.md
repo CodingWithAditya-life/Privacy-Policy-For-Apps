@@ -43,4 +43,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 ### Contact Us  
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
 Contact +91 6207477526:  
-Email: tripto@gmail.com
+Email: aditya.raj62960@gmail.com
